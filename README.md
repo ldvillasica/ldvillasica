@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ldvillasica
 - 👀 I’m interested in science, music and arts
-- 🌱 I’m currently learning a lot of thing!
+- 🌱 I’m currently learning a lot of things!
 - 💞️ I’m looking to collaborate on soil health, quality and carbon research
 - 📫 How to reach me: ldvillasica@carsu.edu.ph
 
